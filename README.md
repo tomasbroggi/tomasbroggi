@@ -5,4 +5,4 @@
 
 • 👯 Comencé en el mundo del software por pasión personal y curiosidad hacia la tecnología. De hecho, considero que un pilar importante es el trabajo en equipo. Así es como inicié    y por eso, hoy en día disfruto estudiando y programando en compañía de algún amigo/a sobre el mismo proyecto.
 
-• 💬 Me encantaría recibir recomendaciones o propuestas de cualquier persona en la industria, soy activo en www.linkedin.com/in/tomasbroggi
+• 💬 Me encantaría recibir recomendaciones de cualquier persona, soy activo en www.linkedin.com/in/tomasbroggi
